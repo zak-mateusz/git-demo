@@ -20,3 +20,4 @@ ię tego nie robić w obszarze zabudowanym. Dlaczego? Bo tym sposobem narażasz 
 
 
 
+dasdjashsa u38 u4 xnfuu 8u3 jd f ds
